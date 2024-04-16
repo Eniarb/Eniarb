@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Eniarb
 - Laura Christine Braine
-- 15 anos
+- 16 anos
 - 01/01/2008
 - 
 - 👀 I like games, books and music.
